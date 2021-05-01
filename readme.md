@@ -7,4 +7,4 @@ D'autre leak arrive sur ce discord !
 and good luck :)
 
 
-BEST SHOP FIVEM : https://discord.gg/xJ3exNgK
+BEST SHOP FIVEM : https://discord.gg/4XhAYwFcPV
